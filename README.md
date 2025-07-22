@@ -1,4 +1,4 @@
-# Hi，I'm RKing 👋
+# Hi，I'm Ayaxita 👋
 
 **Welcome to my github!**
 
